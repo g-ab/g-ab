@@ -1,8 +1,8 @@
 👋 Hey weirdos!,
 
 I’m @g-ab, a human interested in art stuff, music and the internet.
-<br>Part of my work is to design GUI and cool stuff for people and brands,
-the other part is being a typography nerd 🤓
+<br>Part of my work is to design cool products for people and brands
+the other part, is being a typography nerd 🤓
 
 See you in the cyberspace
 
