@@ -1,7 +1,7 @@
 Hey weirdos!,
 
 I’m @g-ab, a human interested in art stuff, music and the internet.
-<br>I design cool stuff for people and brands and I'm a typography nerd 🤓
+<br>I design apps, brands and I'm a typography nerd 🤓
 
 See you in the cyberspace
 
