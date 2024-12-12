@@ -1,7 +1,7 @@
 Hey weirdos!,
 
 I’m a human interested in art stuff, music and the internet.
-<br>Typography nerd 🤓 and software designer.
+<br>Typography and design systems nerd 🤓.
 
 See you in the cyberspace
 
